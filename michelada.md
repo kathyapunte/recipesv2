@@ -4,7 +4,7 @@
 * sal
 * limon
 * chile
-![ ](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExc2s1ZWV2cjFza25wdG5zY2JsbzZzZnZtNG0xcTR0M2hmZjY1bTdoOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Qw6wpEjmGXPPf8SRYI/giphy.gif) 
+![ ](https://media1.tenor.com/m/lwyLXW9CNjwAAAAd/aprobado-por-chayanne-chayanne.gif)
 ## Instructions
 * Mojar el filo del vaso donde se servirá la michelada
 * Colocar el filo del vaso en una cama de sal
